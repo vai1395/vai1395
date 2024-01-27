@@ -1,5 +1,3 @@
-# Vaibhav_Nagar
-
 ## About Me
 
 🚀 **Vaibhav Nagar | Data Data Data📊🌐**
